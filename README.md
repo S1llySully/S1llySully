@@ -10,7 +10,6 @@
 - I'm Grant Curly's biological child guys, TRUST
 - PLS DO INT! though, i am a bit non-verbal at times
 - C+H is okay, i do not mind it so no need to ask permission!
-  https://tenor.com/view/mouthwashing-blinkie-video-game-mouthwash-charles-gif-16197338519506846913
 <!---
 S1llySully/S1llySully is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
