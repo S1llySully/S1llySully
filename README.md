@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @S1llySully aka KiddoWeirdo
 - Fandoms I'm interested in are Mouthwashing, Creepypasta, Horror genres, etc.
 - I'm here because: ponytown ;w;
-- Likes: Positivity, Cats, Chaotic interactions, just enough amount of crowd
-- Dislikes: Weirdos in general, too big of a crowd, art block
+- Likes: Positivity, Cats, Chaotic interactions, just enough amount of crowd, dark humor
+- Dislikes: Weirdos in general, too big of a crowd, art block, too much negativity
 - Pronouns: Any, but I am a female :3
 - Fun fact: I am a hobbyist of drawing and self taught!
 - Note: I will only hide people if you ever strike a nerve and make me iffy,
