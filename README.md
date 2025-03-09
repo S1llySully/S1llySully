@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @S1llySully aka KiddoWeirdo
-  https://tenor.com/view/blinkie-blinkies-graphic-icon-badge-gif-4824561153713150446
 - Fandoms I'm interested in are Mouthwashing, Creepypasta, Horror genres, etc.
 - I'm here because: ponytown ;w;
 - Likes: Positivity, Cats, Chaotic interactions, just enough amount of crowd
