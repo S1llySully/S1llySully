@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @S1llySully aka KiddoWeirdo
-- Fandoms I'm interested in are Mouthwashing, Creepypasta, Horror genres, etc.
+- Fandoms I'm interested in are Mouthwashing, Creepypasta, Life Of Luxury, Horror genres, etc.
 - I'm here because: ponytown ;w;
 - Likes: Positivity, Cats, Chaotic interactions, just enough amount of crowd, dark humor
 - Dislikes: Weirdos in general, too big of a crowd, art block, too much negativity
