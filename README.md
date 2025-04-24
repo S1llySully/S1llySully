@@ -6,7 +6,9 @@
 - Pronouns: Any, but I am a female :3
 - Fun fact: I am a hobbyist of drawing and self taught!
 - Note: • I will only hide people if you ever strike a nerve and make me iffy, mostly depending on what you do, the time limit will be different.
+
   • I'm a possible age regresser
+
   • I'm brainrotted to the core 
 - I'm Grant Curly's biological child guys, TRUST
 - PLS DO INT! though, i am a bit non-verbal at times
