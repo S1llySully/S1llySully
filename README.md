@@ -1,1 +1,1 @@
-errr read my github for more info idk
+errr read my rentry for more info idk
